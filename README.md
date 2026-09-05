@@ -1,0 +1,1 @@
+# bateria-capacidad-fisica1
